@@ -1,1 +1,0 @@
-# Gerich-Restaurant-Home-Interface
